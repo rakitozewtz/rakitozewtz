@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rakitozewtz
+- 👀 Currently workin' at rakisen project
+- 🌱 alxs.zew on discord
+- 💞️ https://rakitozewtz.tk
+- 📫 rakitozewtz@gmail.com
