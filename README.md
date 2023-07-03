@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rakitozewtz
+- 👋 Hi, I’m @zuhncs
 - 👀 Currently workin' at rakisen project
 - 🌱 alxs.zew on discord
 - 💞️ https://rakitozewtz.tk
